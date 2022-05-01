@@ -1,4 +1,0 @@
-# salve MENO????
- estou pensando sobre 
-ESSA LINHA EU ALTEREI AQUI PELO SITE TLGD??????
-
